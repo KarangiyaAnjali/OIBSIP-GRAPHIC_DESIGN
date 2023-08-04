@@ -8,3 +8,6 @@ Design a mesmerizing music night poster that harmoniously blends creativity and 
     [logo design](https://www.canva.com/design/DAFpS_DGZ7s/yJO-1LTAzo96Rb3Ei94N9Q/edit?utm_content=DAFpS_DGZ7s&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 **Task -3:**
 Design a business card for clothing store [business card link](https://www.canva.com/design/DAFpb716s-c/DnrIoGZwEE0fZZZxGDitJQ/edit?utm_content=DAFpb716s-c&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+**Task -4:**
+In a world where trends come and go, black and white fashion remains a classic choice that never goes out of style ,designed fashion magazine cover
+[magazine](https://drive.google.com/file/d/13_jrj7yFKYZ7IlrSIikVeofWypaNTdJk/view?usp=drive_link)
